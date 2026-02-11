@@ -19,7 +19,7 @@ In the same measure as the bourgeoisie, i.e., capital, develops, so does the pro
 
 For the working class, differences of sex and age no longer have any directly social validity. There are only work tools that have different costs depending on age and gender.
 
-The interests, the living conditions within the proletariat are becoming more and more equal, as the machinery gradually erases the differences in work and sinks wages almost everywhere to the same low level. The workers thus begin to form coalitions against the bourgeoisie to defend their wages. The real result of their struggles is not immediate success, but the ever-widening union of the workers: the centralization of the many local struggles into a national struggle, into a class struggle.
+The interests, and the living conditions, of the proletariat, are becoming more and more equal as the machinery gradually erases the differences in work and sinks wages almost everywhere to the same low level. The workers thus begin to form coalitions against the bourgeoisie to defend their wages. The real result of their struggles is not immediate success, but the ever-widening union of the workers: the centralization of the many local struggles into a national struggle, into a class struggle.
 ##
 The bourgeoisie cannot exist without constantly revolutionizing the instruments of production, and therefore the relations of production, and therefore all social relations. The incessant disorder of all social conditions distinguishes the epoch of the bourgeoisie from all others.
 
@@ -41,13 +41,13 @@ Us communists have been reproached with wanting to abolish the property that is 
 
 We have also been objected that with the abolition of private property a general laziness would take hold. If this were the case, bourgeois society should have long since been ruined because here those who work do not earn and those who earn do not work.
 ##
-The wage is the sum of the means of subsistence that are necessary to keep the worker alive as a worker. We want to eliminate the miserable character of social relations dictated by wage labor where the worker lives only as long as the interest of the ruling class demands.
+A wage is the sum of the means of subsistence that are necessary to keep the worker alive as a worker. We want to eliminate the miserable character of social relations dictated by wage labour where the worker lives only as long as the interest of the ruling class demands.
 
 In bourgeois society, labour is only a means of increasing capital. In communist society, capital is only a means to expand, enrich and promote the life process of the worker. In bourgeois society, capital is independent and personal, while the active individual is dependent and impersonal.
 
 Communism does not deprive anyone of the power to appropriate social products, it only takes away the power to subjugate the labor of others through this appropriation.
 
-In place of the old bourgeois society, with its class oppositions, there will be an association where the free development of each member is the condition for the free development of all.
+In place of the old bourgeois society with its class oppositions, there will be an association where the free development of each member is the condition for the free development of all.
 ##
 The dominant ideas of an epoch have always been only the ideas of the ruling class.
 
@@ -57,7 +57,7 @@ The bourgeoisie share with all the overturned ruling classes the conception that
 
 The dissolution of old ideas goes hand in hand with the dissolution of the old conditions of life. The communist revolution is the most radical break with traditional property relations: no wonder if in the course of its development it breaks most radically with traditional ideas.
 ##
-The Communists disdain to conceal their views and aims. They openly declare that their ends can be attained only by the forcible overthrow of all existing social conditions.
+Communists disdain to conceal their views and aims. They openly declare that their ends can be attained only by the forcible overthrow of all existing social conditions.
 
 Let the ruling classes tremble at a communist revolution!
 
