@@ -1,0 +1,1 @@
+# Summary-of-Communist-Manifesto
