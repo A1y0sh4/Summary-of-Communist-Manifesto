@@ -51,7 +51,7 @@ In place of the old bourgeois society with its class oppositions, there will be 
 ##
 The dominant ideas of an epoch have always been only the ideas of the ruling class.
 
-Bourgeois ideas are the result of bourgeois relations of production and property, just as bourgeois law (the content of which is given by the conditions of oppression given by the bourgeois mode of production) is only the will of the bourgeois class elevated to law.
+Bourgeois ideas are the result of bourgeois relations of production and property, just as bourgeois law (the content of which is given by the conditions of the bourgeois mode of production) is only the will of the bourgeois class elevated to law.
 
 The bourgeoisie share with all the overturned ruling classes the conception that their relations of production and property are like eternal universal laws of nature and reason.
 
