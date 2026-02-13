@@ -61,6 +61,6 @@ Communists disdain to conceal their views and aims. They openly declare that the
 
 Let the ruling classes tremble at a communist revolution!
 
-The proletarians have nothing to lose except their chains, and they have a world to win.
+The proletarians have nothing to lose but their chains, and they have a world to win.
 
 Proletarians and oppressed of all countries, unite!
