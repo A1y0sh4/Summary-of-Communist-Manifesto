@@ -53,7 +53,7 @@ The dominant ideas of an epoch have always been only the ideas of the ruling cla
 
 Bourgeois ideas are the result of bourgeois relations of production and property, just as bourgeois law (the content of which is given by the conditions of the bourgeois mode of production) is only the will of the bourgeois class elevated to law.
 
-The bourgeoisie share with all the overturned ruling classes the conception that their relations of production and property are like eternal universal laws of nature and reason.
+The bourgeoisie share with all the overturned ruling classes the conception that their relations of production and property are like eternal laws of nature and reason.
 
 The dissolution of old ideas goes hand in hand with the dissolution of the old conditions of life. The communist revolution is the most radical break with traditional property relations: no wonder if in the course of its development it breaks most radically with traditional ideas.
 ##
