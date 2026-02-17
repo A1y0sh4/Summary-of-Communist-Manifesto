@@ -7,7 +7,7 @@ Our epoch, the epoch of the bourgeoisie, is distinguished by the fact that it ha
 ##
 The bourgeoisie has played an extremely revolutionary role in history.
 
-It has destroyed feudal relations and has left no other bond between man and man than bare profit interest, the "cash payment" devoid of feelings. It has dissolved personal dignity in exchange-value and in its place has put only the freedom of unscrupulous trade. It tore the sentimental veil from the family relationship and brought it back to a pure relationship of money.
+It has destroyed feudal relations and has left no other bond between man and man than bare self-interest, the "cash payment" devoid of feelings. It has dissolved personal dignity in exchange-value and in its place has put only the freedom of unscrupulous trade. It tore the sentimental veil from the family relationship and brought it back to a pure relationship of money.
 
 Since the birth of large-scale industry and the world market, it has agglomerated the population, centralized the means of production and concentrated property in a few hands. The necessary consequence of this has been political centralization: provinces with different interests, laws, governments, and tariffs have been forced together into one nation. The bourgeoisie finally conquered exclusive political dominance in the modern representative state.
 ##
