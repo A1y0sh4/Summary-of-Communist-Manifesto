@@ -1,7 +1,7 @@
 # Summary-of-Communist-Manifesto
 The history of every society that has existed up to now is the history of class struggles.
 
-The oppressed and oppressors have been in constant opposition to each other, waging a relentless struggle that has ended each time in a revolutionary transformation of the whole society or in the common decline of the struggling classes.
+Oppressed and oppressors have been in constant opposition to each other, waging a relentless struggle that has ended each time in a revolutionary transformation of the whole society or in the common decline of the struggling classes.
 
 Our epoch, the epoch of the bourgeoisie, is distinguished by the fact that it has simplified class oppositions. The whole society is split into two great classes that face each other directly: the bourgeoisie and the proletariat.
 ##
