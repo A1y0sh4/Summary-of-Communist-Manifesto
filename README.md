@@ -15,11 +15,13 @@ Modern state power is only a committee which administers the common affairs of b
 
 The state is, as a rule, the state of the most powerful class, economically and consequently also politically dominant. It is a tool to keep the oppressed class subjugated and exploited. It is the organization of the exploiting class to force the exploited class into the conditions of oppression given by the existing mode of production. The modern representative state is the instrument for the exploitation of wage labour by capital.
 ##
-In the same measure as the bourgeoisie, i.e., capital, develops, so does the proletariat, the class of modern workers who live only as long as they find work and who find work only as long as their labour increases capital. These workers, who have to sell themselves piece by piece, are a commodity like any other commercial item.
+In the same measure as the bourgeoisie, i.e., capital, develops, so does the proletariat, the class of modern workers who live only as long as they find work and who find work only as long as their labour increases capital. These workers, who have to sell themselves piece by piece, are a commodity like any other commercial item and are consequently exposed to all the fluctuations of the market.
 
 For the working class, differences of sex and age no longer have any direct social validity. There are only work tools that have different costs depending on age and gender.
 
-The interests, and the living conditions, of the proletariat, are becoming more and more equal as the machinery gradually erases the differences in work and sinks wages almost everywhere to the same low level. The workers thus begin to form coalitions against the bourgeoisie to defend their wages. The real result of their struggles is not immediate success, but the ever-widening union of the workers: the centralization of the many local struggles into a national struggle, into a class struggle.
+The interests and the living conditions of the proletariat, are becoming more and more equal as the machinery gradually erases the differences in work and sinks wages almost everywhere to the same low level. The workers thus begin to form coalitions against the bourgeoisie to defend their wages.
+
+The result of their struggles is not immediate success, but the ever-widening union of the workers: the centralization of the many local struggles into a national struggle, into a class struggle.
 ##
 The bourgeoisie cannot exist without constantly revolutionizing the instruments of production, and therefore the relations of production, and therefore all social relations. The incessant disorder of all social conditions distinguishes the epoch of the bourgeoisie from all others.
 
