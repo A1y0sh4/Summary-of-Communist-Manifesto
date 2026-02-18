@@ -39,7 +39,7 @@ The immediate goal of communists is the formation of the proletariat as a class-
 
 What distinguishes communism is the abolition of bourgeois property, which is based on the exploitation of the proletariat by the bourgeoisie.
 ##
-Us communists have been reproached with wanting to abolish the property that is the result of someone’s own labour; we do not need to abolish it, the development of industry has already abolished it and abolishes it every day. In bourgeois society, private property exists precisely because it does not exist for nine-tenths of its members. Wage labour does not create property for the proletarian: it creates capital, i.e., property which exploits wage labour.
+Us communists have been reproached with wanting to abolish the property that is the result of someone’s own labour; we do not need to abolish it, the development of industry has already abolished it and abolishes it every day. In bourgeois society, private property exists precisely because it does not exist for nine-tenths of its members. Wage labour does not create property for the proletarian: it creates capital, i.e., the property which exploits wage labour.
 
 We have also been objected that with the abolition of private property a general laziness would take hold. If this were the case, bourgeois society should have long since been ruined because here those who work do not earn and those who earn do not work.
 ##
