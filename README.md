@@ -37,7 +37,7 @@ The Communists differ from other proletarian parties in that they emphasize and 
 
 The immediate goal of communists is the formation of the proletariat as a class-conscious class and the conquest of the political power of the proletariat.
 
-What distinguishes communism is the abolition of bourgeois property, which is based on the exploitation of someone by the someone else.
+What distinguishes communism is the abolition of bourgeois property, which is based on the exploitation of the proletariat by the bourgeoisie.
 ##
 Us communists have been reproached with wanting to abolish the property that is the result of someone’s own labour; we do not need to abolish it, the development of industry has already abolished it and abolishes it every day. In bourgeois society, private property exists precisely because it does not exist for nine-tenths of its members. Wage labour does not create property for the proletarian: it creates capital, i.e., property which exploits wage labour.
 
