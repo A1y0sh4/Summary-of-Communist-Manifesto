@@ -19,7 +19,7 @@ In the same measure as the bourgeoisie, i.e., capital, develops, so does the pro
 
 For the working class, differences of sex and age no longer have any direct social validity. There are only work tools that have different costs depending on age and gender.
 
-The interests and the living conditions of the proletariat, are becoming more and more equal as the machinery gradually erases the differences in work and sinks wages almost everywhere to the same low level. The workers thus begin to form coalitions against the bourgeoisie to defend their wages.
+The interests and the living conditions of the proletariat are becoming more and more equal as the machinery gradually erases the differences in work and sinks wages almost everywhere to the same low level. The workers thus begin to form coalitions against the bourgeoisie to defend their wages.
 
 The result of their struggles is not immediate success, but the ever-widening union of the workers: the centralization of the many local struggles into a national struggle, into a class struggle.
 ##
