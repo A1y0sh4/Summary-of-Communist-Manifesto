@@ -1,4 +1,4 @@
-# Summary-of-Communist-Manifesto
+# Summary of Communist Manifesto
 The history of every society that has existed up to now is the history of class struggles.
 
 Oppressors and oppressed have been in constant opposition to each other, waging a relentless struggle that has ended each time in a revolutionary transformation of the whole society or in the common decline of the struggling classes.
