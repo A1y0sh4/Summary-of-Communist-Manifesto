@@ -45,7 +45,7 @@ We have also been objected that with the abolition of private property a general
 ##
 A wage is the sum of the means of subsistence that are necessary to keep the worker alive as a worker. We want to eliminate the miserable character of social relations dictated by wage labour where the worker lives only as long as the interest of the ruling class demands.
 
-In bourgeois society, labour is only a means of increasing capital. In communist society, capital is only a means to expand, enrich and promote the life process of the worker. In bourgeois society, capital is independent and personal, while the active individual is dependent and impersonal.
+In bourgeois society, labour is only a means of increasing capital. In communist society, capital is only a means to expand, enrich and promote the life process of the worker. In bourgeois society, capital is independent and personal while the active individual is dependent and impersonal.
 
 Communism does not deprive anyone of the power to appropriate social products, it only takes away the power to subjugate the labour of others through this appropriation.
 
