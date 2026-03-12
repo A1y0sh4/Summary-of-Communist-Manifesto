@@ -13,7 +13,7 @@ Since the birth of large-scale industry and the world market, it has agglomerate
 ##
 Modern state power is only a committee which administers the common affairs of billionaires and millionaires, the leaders of whole armies of workers, the members of the modern bourgeois class.
 
-The state is, as a rule, the state of the most powerful class, economically and consequently also politically dominant. It is a tool to keep the oppressed class subjugated and exploited. It is the organization of the exploiting class to force the exploited class into the conditions of oppression given by the existing mode of production. The modern representative state is the instrument for the exploitation of wage labour by capital.
+The state is, as a rule, the state of the most powerful class, economically and consequently also politically dominant. It is the tool of the exploiting class to force the exploited class into the conditions of oppression given by the existing mode of production. The modern representative state is the instrument for the exploitation of wage labour by capital.
 ##
 In the same measure as the bourgeoisie, i.e., capital, develops, so does the proletariat, the class of modern workers who live only as long as they find work and who find work only as long as their labour increases capital. These workers, who have to sell themselves piece by piece, are a commodity like any other commercial item and are consequently exposed to all the fluctuations of the market.
 
