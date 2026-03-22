@@ -31,7 +31,7 @@ To the extent that the exploitation of one individual by another is abolished, t
 ##
 Of all the classes that today confront the bourgeoisie, only the proletariat is a truly revolutionary class.
 
-All the classes of the past who seized power sought to safeguard the position already acquired in life by subjecting the whole of society to the conditions of their mode of earning. The proletarians can take possession of the productive forces only by abolishing the entire mode of appropriation hitherto in force. The proletarians have nothing of their own to safeguard, they have to destroy all private security and all private welfare that has existed up to now.
+All the classes of the past who seized power sought to safeguard the position already acquired in life by subjecting the whole society to the conditions of their mode of earning. The proletarians can take possession of the productive forces only by abolishing the entire mode of appropriation hitherto in force. The proletarians have nothing of their own to safeguard, they have to destroy all private security and all private welfare that has existed up to now.
 ##
 The Communists differ from other proletarian parties in that they emphasize and assert the common interests, independent of nationality, of the whole proletariat.
 
