@@ -35,7 +35,7 @@ All the classes of the past who seized power sought to safeguard the position al
 ##
 The Communists differ from other proletarian parties in that they emphasize and assert the common interests, independent of nationality, of the whole proletariat.
 
-The immediate goal of communists is the formation of the proletariat as a class-conscious class and the conquest of the political power of the proletariat.
+The immediate goal of communists is the formation of the proletariat as a class-conscious class and the conquest of political power by the proletariat.
 
 What distinguishes communism is the abolition of bourgeois property, which is based on the exploitation of the proletariat by the bourgeoisie.
 ##
