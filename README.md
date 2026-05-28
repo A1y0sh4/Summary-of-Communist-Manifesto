@@ -61,6 +61,6 @@ Communists refuse to keep their opinions and intentions secret. They openly decl
 
 Let the ruling classes tremble in the face of a communist revolution!
 
-The proletarians have nothing to lose except their chains, and they have a world to gain.
+The proletarians have nothing to lose except their chains, and they have a world to win.
 
 Proletarians and oppressed of all countries, unite!
