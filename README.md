@@ -15,7 +15,7 @@ Modern state power is only a committee which administers the common affairs of b
 
 The state is, as a rule, the state of the most powerful class, economically and consequently also politically dominant. It is the instrument of the exploiting class to force the exploited class into the conditions of oppression given by the existing mode of production. The modern representative state is the instrument for the exploitation of wage labor by capital.
 ##
-In the same measure as the bourgeoisie, i.e., capital, develops, so does the proletariat, the class of modern wage-laborers who live only as long as they find work and who find work only as long as their labour increases capital. The labor-power of these laborers is a commodity like any other article of commerce, and in the same way their wages are exposed to all market fluctuations.
+In the same measure as the bourgeoisie, i.e., capital, develops, so does the proletariat, the class of modern wage-laborers who live only as long as they find work and who find work only as long as their labor increases capital. The labor-power of these laborers is a commodity like any other article of commerce, and in the same way their wages are exposed to all market fluctuations.
 
 For the working class, differences of sex and age no longer have any directly social validity. There are only work tools that have different costs depending on age and gender.
 
@@ -51,13 +51,13 @@ In place of the old bourgeois society with its class opposition there will be an
 ##
 The dominant ideas of an epoch have always been only the ideas of the ruling class.
 
-Bourgeois ideas are the results of bourgeois relations of production and property, just as bourgeois law is only the will of the bourgeois class raised to law.
+Bourgeois ideas are the results of bourgeois relations of production and property, just as bourgeois law is only the will of the bourgeois class elevated to law.
 
 The bourgeoisie believe, like all the waning ruling classes, that their relations of production and property are like eternal laws of nature and reason.
 
 The dissolution of old ideas goes hand in hand with the dissolution of the old conditions of life. The communist revolution is the most radical break with traditional property relations: no wonder if in the course of its development it breaks most radically with traditional ideas.
 ##
-Communists refuse to keep their opinions and intentions secret. They openly declare that their goals can only be achieved by the violent overthrow of every order of society that has existed up to now.
+Communists refuse to keep their opinions and intentions secret. They openly declare that their goals can only be achieved by the violent overthrow of every social order that has existed up to now.
 
 Let the ruling classes tremble in the face of a communist revolution!
 
